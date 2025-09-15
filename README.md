@@ -16,4 +16,7 @@ I am a ***Third-year Neuroscience 🧠*** student and I want to attempt to get a
 
 ## Why am I doing what I am doing?
 After highschool I went to ***UBC*** to do *Nutritional Sciences* but soon realised that I did'nt enjoy it 😔
-I then transfered to ***Dalhousie University*** last fall, since I knew that *Psychology and Cognitive Sciences* was of my intrest! 
+I then transfered to ***Dalhousie University*** last fall, since I knew that *Psychology and Neuroscience* was of my intrest! 
+
+## How did I gain intrest in Neuroscience and Psychology? 
+I first got intrested in psychology during my IB Psych course, where I had an **amazing professor** who really sparked my curiosity and helped me strive. Additionally I have alwyas enjoyed biology, so the idea of *blending* it with psychology felt natural! 
