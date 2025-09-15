@@ -9,7 +9,7 @@ I'm *21 years old* and my pronouns are *she/her*
 ## Here is a picture of me 
 This is from when I went kayaking this summer🛶 
 ![Unplanned Kayaking this summer🛶](IMG_9960.JPG)
-<img src"IMG_9960.JPG" alt="drawing" width="250"/>
+<img src"IMG_9960.JPG" alt="drawing" height="450x"/>
 
 ## What am I doing at Dal?
 I am a ***Third-year Neuroscience 🧠*** student and I want to attempt to get a certificate in ***Neurotechnology Innovation💡***
