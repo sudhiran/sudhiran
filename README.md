@@ -7,4 +7,5 @@ My name is **Ananya Sudhir**
 ## How old am I and what are my pronouns? 
 I'm *21 years old* and my pronouns are *she/her*
 
-
+## What am I doing at Dal?
+I am a **third-year** **Neuroscience 🧠** student
