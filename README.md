@@ -8,7 +8,7 @@ My name is **Ananya Sudhir**
 I'm *21 years old* and my pronouns are *she/her*
 
 ## Here is a picture of me 
-### Unplanned Kayaking  
+### Unplanned Kayaking this summer🛶  
 ![Unplanned Kayaking this summer🛶](IMG_9960.JPG)
 
 ## What am I doing at Dal?
