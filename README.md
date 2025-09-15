@@ -19,4 +19,4 @@ After highschool I went to ***UBC*** to do *Nutritional Sciences* but soon reali
 I then transfered to ***Dalhousie University*** last fall, since I knew that *Psychology and Neuroscience* was of my intrest! 
 
 ## How did I gain intrest in Neuroscience and Psychology? 
-I first got intrested in psychology during my IB Psych course, where I had an **amazing professor** who really sparked my curiosity and helped me strive. Additionally I have alwyas enjoyed biology, so the idea of *blending* it with psychology felt natural! 
+I first got intrested in psychology during my IB Psych course, where I had an **amazing professor** who really sparked my curiosity🧐 and helped me strive. Additionally I have alwyas enjoyed biology🧬, so the idea of *blending* it with psychology felt natural! 
