@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 ## What's my name?
-My name is **Ananya Sudhir**
+My name is **Ananya Sudhir🌻**
 
 ## How old am I and what are my pronouns? 
 I'm *21 years old* and my pronouns are *she/her*
