@@ -11,6 +11,5 @@ I'm *21 years old* and my pronouns are *she/her*
 ### Unplanned Kayaking  
 ![Unplanned Kayaking this summer🛶](IMG_9960.JPG)
 
-
 ## What am I doing at Dal?
-I am a **third-year** **Neuroscience 🧠** student
+I am a **third-year** **Neuroscience 🧠** student and I want to attempt to get a certificate in *Neurotechnology Innovation💡*
