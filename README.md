@@ -8,7 +8,7 @@ I'm *21 years old* and my pronouns are *she/her*
 
 ## Here is a picture of me 
 This is from when I went kayaking this summer🛶 
-![Unplanned Kayaking this summer🛶](IMG_9960.JPG)
+
 <img src="IMG_9960.JPG" alt="Unplanned Kayaking this summer🛶" width="200"/>
 
 ## What am I doing at Dal?
