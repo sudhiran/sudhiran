@@ -23,3 +23,4 @@ I first got intrested in psychology during my **IB Psych course**, where I had a
 
 ## What are my career plans?
 When I began uni, I would've become anything but a doctor cause the idea of handing losses scared me🫣. But now, **I want nothing else than to go to med school!** How the tables have turned!!
+
